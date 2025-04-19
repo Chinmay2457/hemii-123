@@ -1,2 +1,1 @@
-poornima
-poornima is agood girl
+ruchitha is a sweetest girl
